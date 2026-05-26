@@ -1,2 +1,2 @@
 # PGA41_GENAI
-chumma - 
+naaaga kolaruuuuu
